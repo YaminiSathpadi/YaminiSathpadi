@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YaminiSathpadi
+- 👋 Hi, I’m @Yamini sathpadi
 ## About Me
 
 I am a Business Analyst with a passion for turning data into actionable insights. Currently, I enjoy working on projects that involve data analysis, visualization, and predictive modeling.
