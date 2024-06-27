@@ -10,7 +10,7 @@ I am a Business Analyst with a passion for turning data into actionable insights
 - 📫 How to reach me 
    Email [Sathpadiyaminipriya123@gmail.com]
    [LinkedIn] [https://www.linkedin.com/in/yamini-sathpadi-8128771b9/]
-- 😄 Pronouns: she
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: creating art.
 
 <!---
